@@ -6,6 +6,6 @@ teste
 * engraçada
 * bom gosto musical
 * personalidade legal e meio esquisita
-* bronze 3 no valorant
+* bronze 3 no valorant :P
 
 
